@@ -1,4 +1,4 @@
 # learning-git
-DFeepak has removied secret
+DFeepak has removied secret, Deepak v shi ladka h
 
-Ravi is HArami sala
+Rahul shi ladka h.
